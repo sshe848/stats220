@@ -15,4 +15,4 @@
 
    https://www.youtube.com/watch?v=Cqd1Gvq-RBY&ab_channel=GaryBrolsma
 
-A meme that captures how I currently feel about my university studies is ![](https://c.tenor.com/8druEACXtX8AAAAd/tenor.gif)
+A meme that captures how I currently feel about my university studies is ![](https://tenor.com/view/oggy-and-the-cockroaches-dee-dee-markey-joey-running-gif-7909159793373879226)
