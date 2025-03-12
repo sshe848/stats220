@@ -9,8 +9,8 @@
 **I am not 15 years old**
   *Use of Italics*
 
-- I dont celebrate christmas
-- I dont celebrate easter
-- But I have all the festive foods
+1. I dont celebrate christmas
+1. I dont celebrate easter
+1. But I have all the festive foods
 
 A meme that captures how I currently feel about my university studies is ![](https://c.tenor.com/8druEACXtX8AAAAd/tenor.gif)
