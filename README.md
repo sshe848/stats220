@@ -15,4 +15,5 @@
 
    https://www.youtube.com/watch?v=Cqd1Gvq-RBY&ab_channel=GaryBrolsma
 
-A meme that captures how I currently feel about my university studies is ![](https://tenor.com/view/oggy-and-the-cockroaches-dee-dee-markey-joey-running-gif-7909159793373879226)
+![](https://media1.tenor.com/m/bcL67XPaG7oAAAAd/oggy-and-the-cockroaches-dee-dee.gif)
+
