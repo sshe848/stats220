@@ -17,4 +17,5 @@
 
 ![](https://media1.tenor.com/m/bcL67XPaG7oAAAAd/oggy-and-the-cockroaches-dee-dee.gif)
 
-https://cdn.indiabioscience.org/imager/articles/411714/Aniruddha_feature-image_b2cf2921c9b71f66606f3c0854ade9b4.webp
+
+https://cdn.indiabioscience.org/imager/articles/411714/Aniruddha_feature-image_4b32b63c5c28c858e051e9d1a2a717a1.png
